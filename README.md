@@ -1,6 +1,6 @@
 <div align="center"
 
 
-![image alt](https://github.com/B-Zuka/B-Zuka/blob/f80e0133ebc461ab30416b6fa1bd4bf8de2a9a35/Untitled1155_20260308144159.png) 
+![image alt](https://github.com/B-Zuka/B-Zuka/blob/913d0a68e49a0577c6144f7566dcfb1b87f053b5/Untitled1089_20260201022517.png) 
 
-olelee olalaaaa
+Remaking GitHub! 
