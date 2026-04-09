@@ -6,3 +6,6 @@
 Remaking GitHub! 
 
 @thehoteldoors≫ you so mean 😭😭😭😭  .  @Pixelbrickz ≫ You also so mean I'm blocking everyone -_-
+
+
+!!! I DO NOT SUPPORT GRACE AND PRESSURE DEVS!!! 
