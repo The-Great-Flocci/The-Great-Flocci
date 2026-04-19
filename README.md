@@ -1,11 +1,13 @@
 <div align="center"
 
 
-![image alt](https://github.com/B-Zuka/B-Zuka/blob/913d0a68e49a0577c6144f7566dcfb1b87f053b5/Untitled1089_20260201022517.png) 
+![image alt](https://github.com/B-Zuka/B-Zuka/blob/b8ab95200179b12abc34c437f316b3e8920604c0/Untitled1219_20260419132627.png) 
 
-Remaking GitHub! 
+hey.. thats my art up there.. do u like it.. 
 
-@thehoteldoors≫ you so mean 😭😭😭😭  .  @Pixelbrickz ≫ You also so mean I'm blocking everyone -_-
+@thehoteldoors≫ hi Tourist!!.  @Pixelbrickz ≫ Hi expandable!! 
 
+C+h Encouragement!! 
 
-!!! I DO NOT SUPPORT GRACE AND PRESSURE DEVS!!! 
+may have to freely block/hide if needed! apologies.
+
