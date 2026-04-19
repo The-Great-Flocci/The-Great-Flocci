@@ -1,7 +1,7 @@
 <div align="center"
 
 
-![image alt](https://github.com/B-Zuka/B-Zuka/blob/b8ab95200179b12abc34c437f316b3e8920604c0/Untitled1219_20260419132627.png) 
+![image alt](https://github.com/B-Zuka/B-Zuka/blob/2bbcef962f5ae853cc1b5e40f6911b845c7f7838/Untitled1219_20260419134014.png) 
 
 hey.. thats my art up there.. do u like it.. 
 
