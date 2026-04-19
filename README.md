@@ -5,10 +5,6 @@
 
 hey.. thats my art up there.. do u like it..
 
-C+h Encouragement!! 
+C+h Encouragement!!
 
-may have to freely block/hide if needed! apologies.
-
-Postman is the only one who's awesome to me!.. not whoever these newhens are under there.. 
-
-@thehoteldoors... ig -_-   |    @PixelBrickz ... ig.. :/
+' Hey hey, Welcome home! I am your postman.. Nice to Meetcha'! this town has a way of.. remembering it's players! "
