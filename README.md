@@ -9,4 +9,4 @@ C+h Encouragement!!
 
 reminder this is still a wip! I'm figuring the coding.. 
 
-@Thehoteldoors Fat  | @Pixelbrickz fatter
+@Thehoteldoors Stupidest noob  | @Pixelbrickz stupidest thing ever
