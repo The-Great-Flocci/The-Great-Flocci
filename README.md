@@ -1,12 +1,6 @@
 <div align="center"
 
 
-![image alt](https://github.com/B-Zuka/B-Zuka/blob/2bbcef962f5ae853cc1b5e40f6911b845c7f7838/Untitled1219_20260419134014.png) 
+![image alt](https://github.com/The-Great-Flocci/The-Great-Flocci/blob/b05eb3704647bcd6750b0fcae0cb768e4b99ab43/Untitled1245_20260429005913.png) 
 
-hey.. thats my art up there.. do u like it..
-
-C+h Encouragement!!
-
-reminder this is still a wip! I'm figuring the coding.. 
-
-@Thehoteldoors Stupidest noob  | @Pixelbrickz stupidest thing ever
+ 
