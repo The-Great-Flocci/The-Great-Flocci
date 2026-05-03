@@ -16,6 +16,4 @@ $\texttt{\color{#33203A}"…I have been summoned! Beholder of the bottle, that o
 
  wip.. 
 
- my gh only looks good in PC since phone screens are too small!! 
-
- @Thehoteldoors- hi  @Pixelbrickz- hi
+ @Thehoteldoors-  @Pixelbrickz- best oomfs ever! 
